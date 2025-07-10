@@ -10,4 +10,4 @@
 
 这些平台专注于久久国产精品精品国产资源，涵盖多种少妇激情视频及小说内容，更新迅速，分类详尽。每个视频页面配备影片时长、主演和清晰度介绍，支持高清流畅播放，自动调节画质，保障观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi6 ）</span>
